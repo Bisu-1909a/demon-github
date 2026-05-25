@@ -6,4 +6,4 @@ I AN GOOD TEAM PLAYER.
 i am a good problem solver .
 i am a good comunicator.
 i am good team player.
-Thank you for reading !
+Thank you for reading.
